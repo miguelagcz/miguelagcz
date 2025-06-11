@@ -1,5 +1,5 @@
 # 💫 About Me:
-¡Hola! Soy un apasionado programador de 24 años de la Ciudad de México, con un entusiasmo por aprender y crecer en el mundo del desarrollo de software. Siempre estoy en busca de nuevos desafíos y oportunidades para participar en proyectos innovadores que me permitan destacar y contribuir de manera significativa. <br><br>Mi objetivo es colaborar con equipos dinámicos y aportar mis habilidades para la mejora de proyectos y crecimiento profesional. Si buscas a alguien comprometido, proactivo y con una gran disposición para enfrentar nuevos retos, ¡Saludos desde México!
+¡Hola! Soy un apasionado programador de 25 años de la Ciudad de México, con un entusiasmo por aprender y crecer en el mundo del desarrollo de software. Siempre estoy en busca de nuevos desafíos y oportunidades para participar en proyectos innovadores que me permitan destacar y contribuir de manera significativa. <br><br>Mi objetivo es colaborar con equipos dinámicos y aportar mis habilidades para la mejora de proyectos y crecimiento profesional. Si buscas a alguien comprometido, proactivo y con una gran disposición para enfrentar nuevos retos, ¡Saludos desde México!
 
 
 ## 🌐 Socials:
